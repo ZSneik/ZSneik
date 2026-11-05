@@ -39,7 +39,6 @@ Physics · Programming · Linux · Cybersecurity · Electronics · Scientific co
 
 ---
 
-*Learning by building. Understanding by experimenting.*
 
 <sub>Discord: available upon request.</sub>
 
